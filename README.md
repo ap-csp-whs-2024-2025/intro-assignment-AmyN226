@@ -11,5 +11,6 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I am a twin.
-* Ask Mr. Vu anything:
+* Ask Mr. Vu anything: What is your favorite color?
 * List your sports and extracurriculars you participate in
+I am part of the Pawsitive Rescue club and Astro Physics Club, I am on the badminton team, 
